@@ -9,7 +9,7 @@ title: "Home"
 I am a PhD student in Economics at the University of Southern California (USC), Los Angeles.  
 My research interests lie in **political economy**, **development economics**, and **economic history**.
 
-Previously, I worked as a Research Associate at [Governance Lab](https://www.govlab.com.np/ien) in Nepal. I went to **New York University in Abu Dhabi** for my undergraduate studies.
+Previously, I worked as a Research Associate at [Governance Lab](https://www.govlab.com.np/ien) in Nepal. I went to New York University in Abu Dhabi for my undergraduate studies.
 
 ---
 
