@@ -18,7 +18,7 @@ Previously, I worked as a Research Associate at [Governance Lab](https://www.gov
 ### **Published**
 
 - **“[Ancient Nomadic Corridors and Long-run Development in the Highlands of Asia](https://www.sciencedirect.com/science/article/abs/pii/S0014498322000602)”**  
-  _Explorations in Economic History 89 (2023): 101482_  **Lead Article** with [Christopher Paik](https://christopher-paik.com/)
+  _Explorations in Economic History 89 (2023): 101482_  [**Lead Article**] with [Christopher Paik](https://christopher-paik.com/)
 
 ---
 
